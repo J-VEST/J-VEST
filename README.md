@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Justin.
 - 👀 I’m interested in ethical hacking & Cydia.
-- 🌱 I’m currently learning how to play the guitar.
+- 🌱 I’m currently learning the guitar.
 - 💞️ I’m reposting stuff on Twitter.
 - 📫 How to reach me: [@mirrordev](https://www.linktr.ee/jvestman)
 - ⚡ Fun fact: I'm schizophrenic.
